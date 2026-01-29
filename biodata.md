@@ -1,1 +1,2 @@
 Nama: Dian Ramadhani 
+learn 
